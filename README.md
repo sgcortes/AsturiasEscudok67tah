@@ -1,1 +1,0 @@
-# AsturiasEscudok67tah
